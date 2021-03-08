@@ -1,1 +1,1 @@
-Heyy ^^ willkommen auf meiner GitHub Seite! In dieser Repository gibt es Codes von meiner self-made Website Serien-Fanpage-Deutsch. Auf der Website gibt es bald News und Infos und Fun Facts über bestimmte Websiten! Website: https://creeperboy23342.github.io/serien-fanpage.github.io
+Heyy ^^ willkommen auf meiner GitHub Seite! In dieser Repository gibt es Codes von meiner self-made Website Serien-Fanpage-Deutsch. Auf der Website gibt es bald News und Infos und Fun Facts über bestimmte Websiten! Website: http://serien-fanpage.tk
