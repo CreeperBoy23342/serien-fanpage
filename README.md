@@ -1,1 +1,1 @@
-Heyy ^^ willkommen auf meiner GitHub Seite! In dieser Repository gibt es Codes von meiner self-made Website Serien-Fanpage. Auf der Website gibt es bald News und Infos und Facts über bestimmte Websiten! Website: http://serien-fanpage.tk
+Heyy ^^ willkommen auf meiner GitHub Seite! In dieser Repository gibt es Codes von meiner self-made Website Serien-Fanpage. Auf der Website gibt es bald News und Infos und Fakten über bestimmte Websiten! Website: http://serien-fanpage.tk
